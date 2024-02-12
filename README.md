@@ -25,7 +25,7 @@ I'm keen to delve deeper into:
 ## How to Reach Me
 Feel free to drop me a line at:
 - 📧 Email: nithinyadavg2102000@gmail.com
-- 📱 Phone: +91-8130799887
+- 📱 Phone: +91-9880577599
 - 🌐 LinkedIn: [Nithin Yadav G](https://www.linkedin.com/in/nithin-yadav-g-082b51129/) 
 
 ## Few More
