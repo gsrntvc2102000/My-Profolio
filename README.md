@@ -1,4 +1,5 @@
-# Hi there! 👋 I'm Nithin Yadav G (@gsrntvc2102000)
+# Hi there! 👋 I'm Nithin Yadav G
+
 
 Welcome to my GitHub profile! I'm a hardware engineer with a passion for all things computer science and technology. Here's a little about me:
 
