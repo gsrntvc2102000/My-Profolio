@@ -30,7 +30,7 @@ Feel free to drop me a line at:
 - 🌐 LinkedIn: [Nithin Yadav G](https://www.linkedin.com/in/nithin-yadav-g-082b51129/) 
 
 ## Few More
-- Linktree : https://linktr.ee/nithinyadavg 
+- [Linktree](https://linktr.ee/nithinyadavg) 
 
 
 
